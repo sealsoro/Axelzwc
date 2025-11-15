@@ -1,13 +1,5 @@
-## hey there...
-she/her 
+     ,  hi there!! ,
 
-` skibidi tolieo😂✌️
-hey there im axels
+     ,  im eve !!  ,
 
-,,,
-
-
-i love my pt friends theyr cool
-
-
-c+h freely in pt.
+     , ts is not done 💔✌️ ,
